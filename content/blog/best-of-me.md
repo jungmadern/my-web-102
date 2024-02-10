@@ -1,3 +1,11 @@
 # Bast of Me
 ---
-> I love tech
+> dhdjdfhdgh  
+> dhdjdfhdgh  
+> dhdjdfhdgh  
+> dhdjdfhdgh  
+> dhdjdfhdgh  
+> dhdjdfhdgh  
+## hfhf
+---
+> hryydgdhd
